@@ -1,2 +1,2 @@
-# obsidian
- 
+Tec Azuay 
+ Paola Tigre
